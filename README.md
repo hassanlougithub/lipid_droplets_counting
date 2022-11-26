@@ -8,6 +8,7 @@ Stem cells are a group of competent cells capable of self-renewal and differenti
 
 
 ![image](https://user-images.githubusercontent.com/57661230/203866157-a6777865-5a8e-4f35-bfb5-42bf283e4140.png)
+![image](https://user-images.githubusercontent.com/57661230/204064947-3d34575f-4920-4919-8a78-e9950e6041cb.png)
 
 
 
